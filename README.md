@@ -1,1 +1,1 @@
-<img width="736" height="773" alt="OMORI WEEZER" src="https://github.com/user-attachments/assets/874ba575-74ea-4ecc-94de-6ee03f5f848b" />
+<img width="400" height="301" alt="EAT EAT EAT" src="https://github.com/user-attachments/assets/49a3caad-3499-479d-84ec-b28c0e68fd46" />
